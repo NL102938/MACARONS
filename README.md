@@ -28,3 +28,5 @@ Method
 12. Now you can pipe your macarons onto your parchment paper and bake! I use a #802 round piping tip and a template. Hold your tip straight up in the center of the circle, about 1/4″ away from the paper and squeeze until the batter fills the circle 3/4 of the way then lift straight up quickly to break the batter off.
 13. Lift your tray up about 5 inches and drop onto the table to pop any bubbles that are under the surface of your macaron and the batter should spread to the edge of the circle.
 14. Let your macaron sit at room temperature until a crust forms over the surface. Depending on your room, it can take from 30 minutes to 2 hours. You should be able to touch the top lightly and it doesn’t feel sticky.
+
+By: NIKHIL.
